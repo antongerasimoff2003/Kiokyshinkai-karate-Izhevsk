@@ -1,0 +1,1 @@
+# Kiokyshinkai-karate-Izhevsk
